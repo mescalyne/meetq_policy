@@ -22,4 +22,4 @@ Contact Us
 
 If you have questions, suggestions, or concerns about our privacy policy, please contact us at the following email address: [koqsupport@gmail.com](mailto:koqsupport@gmail.com)
 
-Effective Date: 24/08/2023
+Effective Date: 17/09/2024
